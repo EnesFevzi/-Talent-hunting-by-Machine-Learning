@@ -1,0 +1,1 @@
+# Makine-renmesi-ile-Yetenek-Avc-l-S-n-fland-rma
